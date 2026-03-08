@@ -1,1 +1,0 @@
-# sshhgggdd.github.io
